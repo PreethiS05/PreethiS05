@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PreethiS05
-- 👀 I’m interested in Coding , photography, Editing  
+- 👀 I’m interested in Coding , photography, Editing ,content creation 
 - 🌱 I’m currently learning Btech 2nd year 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me : preethipkr78@gmail .com 
